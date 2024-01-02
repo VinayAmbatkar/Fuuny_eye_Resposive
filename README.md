@@ -1,2 +1,2 @@
-# My_Resume
-this is tryal of portfolio
+This is just funny  eye that follow corusor .
+🤣👁️👁️
